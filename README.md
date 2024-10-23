@@ -2,7 +2,7 @@
 
 Contino Andrea
 
-Zanella Piergiorgio
+Zannella Piergiorgio
 
 Ceccarelli Pierpaolo
 
